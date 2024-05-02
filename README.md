@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jincao1
-- 👀 I’m interested in anything and everthing - science, technology, hot deals.
+- 👀 I’m interested in anything and everything - science, technology, hot deals.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 jc@jcao.ca
